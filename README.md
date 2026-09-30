@@ -229,4 +229,4 @@ Knives Out is offered as a complete free version for Windows, with all features 
 Ready to dive into the action? Download Knives Out today and experience the thrill of battle royale gaming!
 
 ---
-**Last updated:** 2026-09-30 14:51:28 UTC
+**Last updated:** 2026-09-30 19:50:04 UTC
